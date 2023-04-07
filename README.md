@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on TBI Company<br>🌱 I’m currently seeking for a job<br>
+🔭 I’m currently working on TBI Company , Sheikh Zayed City <br>🌱 I’m currently seeking for a job<br>
 
 
 ## 🌐 Socials:
