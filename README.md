@@ -1,5 +1,7 @@
 # 💫 About Me:
-🔭 I’m currently working on TBI Company , Sheikh Zayed City <br>🌱 I’m currently seeking for a job<br>
+🔭 I worked  on TBI Company , Sheikh Zayed City 
+
+<br>🌱 I’m currently Workinf In Bussiness Eco Systems  , Cairo Egypt <br>
 
 
 ## 🌐 Socials:
